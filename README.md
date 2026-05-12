@@ -2,6 +2,12 @@
 
 Torrent download links :
 
+7-Zip 26.01 torrent download link : (Product Price : Free)
+https://www.shopcom.tn/product/7-zip-26-01/torrent-download
+
+LibreOffice 26.2.3 torrent download link : (Product Price : Free)
+https://www.shopcom.tn/product/libreoffice-26-2-3/torrent-download
+
 VLC Media Player 3.0.23 torrent download link : (Product Price : Free)
 https://www.shopcom.tn/product/vlc-media-player-3-0-23/torrent-download
 
@@ -148,6 +154,12 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/torrent-download
 
 --------------------------------------------------------------------
 Direct download links :
+
+7-Zip 26.01 download link : (Product Price : Free)
+https://www.shopcom.tn/product/7-zip-26-01/download
+
+LibreOffice 26.2.3 download link : (Product Price : Free)
+https://www.shopcom.tn/product/libreoffice-26-2-3/download
 
 VLC Media Player 3.0.23 download link : (Product Price : Free)
 https://www.shopcom.tn/product/vlc-media-player-3-0-23/download
