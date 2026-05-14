@@ -2,6 +2,9 @@
 
 Torrent download links :
 
+Café İstanbul - Göksel Baktagir torrent download link : (Product Price : Free)
+https://www.shopcom.tn/product/cafe-istanbul-goksel-baktagir/torrent-download
+
 7-Zip 26.01 torrent download link : (Product Price : Free)
 https://www.shopcom.tn/product/7-zip-26-01/torrent-download
 
@@ -154,6 +157,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/torrent-download
 
 --------------------------------------------------------------------
 Direct download links :
+
+Café İstanbul - Göksel Baktagir download link : (Product Price : Free)
+https://www.shopcom.tn/product/cafe-istanbul-goksel-baktagir/download
 
 7-Zip 26.01 download link : (Product Price : Free)
 https://www.shopcom.tn/product/7-zip-26-01/download
