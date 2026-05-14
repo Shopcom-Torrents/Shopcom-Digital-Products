@@ -2,6 +2,9 @@
 
 Torrent download links :
 
+1492 Conquest of Paradise - Vangelis torrent download link : (Product Price : Free)
+https://www.shopcom.tn/product/1492-conquest-of-paradise-vangelis/torrent-download
+
 Café İstanbul - Göksel Baktagir torrent download link : (Product Price : Free)
 https://www.shopcom.tn/product/cafe-istanbul-goksel-baktagir/torrent-download
 
@@ -157,6 +160,9 @@ https://www.shopcom.tn/product/solidworks-2023-sp5-0-premium/torrent-download
 
 --------------------------------------------------------------------
 Direct download links :
+
+1492 Conquest of Paradise - Vangelis download link : (Product Price : Free)
+https://www.shopcom.tn/product/1492-conquest-of-paradise-vangelis/download
 
 Café İstanbul - Göksel Baktagir download link : (Product Price : Free)
 https://www.shopcom.tn/product/cafe-istanbul-goksel-baktagir/download
